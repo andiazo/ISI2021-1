@@ -4,7 +4,7 @@
 
 - Díaz Obando, Andrés David - Github: @andiazo
 - Muñoz Díaz, Diana Katerine - Github: @katerinemoon
-- Pereira, Julián - Github: @
+- Pereira Plata, Julian Andrés - Github: @Nzone56
 
 ---
 
